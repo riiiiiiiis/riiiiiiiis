@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @riiiiiiiis
+- 👀 I’m interested in teaching, programming, design, art, 
+- 🌱 I’m currently learning how to be a better father for my son
+- 💞️ 
+- 📫 
